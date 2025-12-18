@@ -1,1 +1,1 @@
-people making awesome things
+people making awesome things դոոդոկ
